@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou o Catatauexe!
+# 👋Sou o Catatauexe!
 
 💻 **Estudante de Ciência da Computação** | 🚀 Tecnologia | 🎮 Projetos | 📚 Aprendizado
 
